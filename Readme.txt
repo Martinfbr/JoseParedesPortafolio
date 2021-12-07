@@ -1,3 +1,3 @@
-Thanks for downloading this template!
+Bienvenidos a mi portafolio
 
 Name:  Jose Antonio Paredes Martinez
